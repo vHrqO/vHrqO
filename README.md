@@ -1,5 +1,11 @@
 ## Hi there 👋
 
+⛅<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;╱|、<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(˚ˎ&nbsp;。7<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;|、&nbsp;˜〵<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;じしˍ,)ノ<br/>
+
 <!--
 **vHrqO/vHrqO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
